@@ -8,6 +8,7 @@
 - [Luifer](https://github.com/luifer991) **First contribution, awesome**
 - [Om Asatu](https://github.com/omasati1709) **My first contribution**
 - [KKK](https://github.com/nlpkyukyu)
+- [Mangalam on the way] First contribution in the world of open source
 - [prawin999] - all then best:)
 - [Ameya Patel](https://github.com/ampcod) **My first contribution**
 - Harsha (https://github.com/thedevopsknight) First contribution, definitely not the last 🔥❤️
